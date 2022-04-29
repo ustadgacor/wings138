@@ -1,5 +1,5 @@
-# wings138
-Wings138 merupakan sebuah situs yang menyediakan bonus terbesar bagi para membernya.  Bagi anda yang ingin mendapatkan keuntungan, anda bisa memaanfatkan promo dan bonus yang ada.  Jadi, pendapatan yang diperoleh bukan hanya dari kemenangan saja tetapi juga dari promo tersebut. Wings138 menawarkan berbagai promo menarik bagi anda yang ingin bergabung. Promo tersebut adalah sebagai berikut :  
+# Wings138 Situs Slot Terpercaya
+Wings138 merupakan sebuah situs yang menyediakan bonus terbesar bagi para membernya. Bagi anda yang ingin mendapatkan keuntungan, anda bisa memaanfatkan promo dan bonus yang ada.  Jadi, pendapatan yang diperoleh bukan hanya dari kemenangan saja tetapi juga dari promo tersebut. Wings138 menawarkan berbagai promo menarik bagi anda yang ingin bergabung. Promo tersebut adalah sebagai berikut :  
 1. Promo Bonus New Member 100%     Wings138 menyediakan bonus member baru sebesar 100%. Promo ini hanya berlaku pada saat member pertama kali bergabung dan melakukan registrasi pembayaran.  
 2. Promo Bonus Ajak Teman (Referral)     
 Bonus komisi yang ditawarkan dapat menjadi tambahan penghasilan bagi para member.  
